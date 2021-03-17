@@ -1,2 +1,2 @@
 # JSP_Thory
-🎇🎆ISSUE -->>
+🎇🎆ISSUES -->>
